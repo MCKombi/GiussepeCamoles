@@ -1,16 +1,14 @@
-## Hi there 👋
+## Turma do 1G
 
-<!--
-**GiussepeCamoles/GiussepeCamoles** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Javascript learner
 
-Here are some ideas to get you started:
+They/Them
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Stoner Metal Enjoyer
+
+Bestie: Mike Hawk
+
+Portuguese/English
+
+
+![](https://giphy.com/gifs/xTiTnlzKFDl8nZBYME)
