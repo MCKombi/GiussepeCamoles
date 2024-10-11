@@ -2,8 +2,6 @@
 
 Javascript learner
 
-They/Them
-
 Stoner Metal Enjoyer
 
 Bestie: Mike Hawk
@@ -11,4 +9,10 @@ Bestie: Mike Hawk
 Portuguese/English
 
 
-![](https://giphy.com/gifs/xTiTnlzKFDl8nZBYME)
+![stoner](https://github.com/user-attachments/assets/4a3d2748-6908-4296-8ebf-f37b27ae382b)
+
+
+
+
+
+
